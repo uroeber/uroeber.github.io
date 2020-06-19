@@ -6,3 +6,6 @@ Durch ueber zweihundert farbige Bilder stapft der muntere Bobo Siebenschlaefer. 
 * neugierig
 * tollpatschig
 * gesellig
+
+Da Bobo noch nicht sprechen kann, zitiere ich:
+> Chrrrrrr
